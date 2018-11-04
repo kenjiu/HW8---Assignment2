@@ -1,6 +1,5 @@
 untitled.html
 955npo7e5fk.html
 figures/Picture_for_Assignment2
-ks54frnc9po.html
 p7sp8s3f2gg.html
 p55brqn0btk.html

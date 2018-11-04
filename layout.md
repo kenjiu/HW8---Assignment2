@@ -1,2 +1,4 @@
 untitled.html
+figures/Picture_for_Assignment2
+p7sp8s3f2gg.html
 p55brqn0btk.html
